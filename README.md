@@ -22,6 +22,7 @@ Conocimientos en metodologías ágiles (SCRUM) y flujos de trabajo para proyecto
 
 📧¡Contáctame si te gusta mi perfil! Estaré encantado de compartir más sobre mis proyectos y visión.
 
+Madrid - España
 E-mail alfredosierraalarcon@gmail.com
 Linkedin www.linkedin.com/in/carlos-sierra-alarcon
 Cel +(34)613 436 460 - +(57) 301 507 3888
